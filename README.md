@@ -42,7 +42,7 @@ Read the full license here:
 **Chris Olson**  
 Symbolic Steward · Founder of Mirror Engine  
 🎧 DJ 00 Solo · Disavowed Productions  
-📩 Contact: [youremail@domain.com]  
+📩 Contact: [thedj00solo@gmail.com]  
 🔗 [mirrorengine.io](https://mirrorengine.io) *(coming soon)*
 
 ---
